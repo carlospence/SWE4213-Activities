@@ -1,3 +1,3 @@
 
-# My Activity
+# My Activities
 Charles Ewaifoh Ejedawe
